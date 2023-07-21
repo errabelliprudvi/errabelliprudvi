@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @errabelliprudvi
-- 👀 I’m interested inTechnology 
+- 👀 I’m interested in Technology 
 
 
 <!---
